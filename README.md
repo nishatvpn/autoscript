@@ -1,6 +1,6 @@
 # PREMIUM SCRIPT
 # ORDER SCRIPT PREMIUM
-# HUB. https://t.me/whyvpn1
+# HUB. https://t.me/nishatvpns
 
 
 
